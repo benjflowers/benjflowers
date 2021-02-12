@@ -1,4 +1,6 @@
-### Hi there 👋
+## :japanese_ogre: Hey :japanese_ogre:
+- Actively waiting to find :bowing_man: i n s p i r a t i o n:bowing_man:
+- Problem solving parenthood :girl:
 
 <!--
 **benjflowers/benjflowers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
